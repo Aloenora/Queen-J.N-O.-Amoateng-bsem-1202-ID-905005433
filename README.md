@@ -1,4 +1,4 @@
-<img width="1906" height="1031" alt="Screenshot 2026-04-23 112838" src="https://github.com/user-attachments/assets/77275c54-8633-4916-a5e5-302c76dfeac4" /># Queen-J.N-O.-Amoateng-bsem-1202-ID-905005433
+# Queen-J.N-O.-Amoateng-bsem-1202-ID-905005433
 
 # Web Design Assignment 1
 
